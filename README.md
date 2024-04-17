@@ -6,7 +6,7 @@ Perkenalkan nama saya **Jihan Datuslan Ibrahim**.<br>
 
 Saya memiliki kepribadian yang bertanggung jawab dan mau belajar hal baru sehingga berdasarkan pengalaman dan Studi yang sedang saya jalani membuat saya tertarik di bidang multimedia dan ingin lebih mendalami pengalaman saya di bidang Web Developer.<br>
 
-Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/jihan-datuslan-ibrahim-6550a5255/),[Instagram](https://www.instagram.com/jihanibrhm_?igsh=a3o4ZDYxN2JuM3V5) ku ya!!.  
+Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/jihan-datuslan-ibrahim-6550a5255/) ku ya!!.  
 
 <p align="left">
 <a href="https://github.com/jihandatuslan">  
