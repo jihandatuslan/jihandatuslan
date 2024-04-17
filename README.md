@@ -1,6 +1,6 @@
 # Halo semua!👋🤗   
 
-Perkenalkan nama saya **Jihan Datuslan Ibrahim**.<br>
+Perkenalkan saya **Jihan Datuslan Ibrahim**.<br>
 
  Saya sedang menempuh studi **D4 Teknologi Rekayasa Multimedia** di [Politeknik Negeri Batam](https://www.polibatam.ac.id/).<br>
 
