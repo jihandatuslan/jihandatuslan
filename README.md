@@ -1,10 +1,10 @@
 # Halo semua!👋🤗   
 
-Perkenalkan saya **Jihan Datuslan Ibrahim**.<br>
+Perkenalkan aku **Jihan Datuslan Ibrahim**.<br>
 
- Saya sedang menempuh studi **D4 Teknologi Rekayasa Multimedia** di [Politeknik Negeri Batam](https://www.polibatam.ac.id/).<br>
+ Sekarang, sedang menempuh studi **D4 Teknologi Rekayasa Multimedia** di [Politeknik Negeri Batam](https://www.polibatam.ac.id/).<br>
 
-Saya memiliki kepribadian yang bertanggung jawab dan mau belajar hal baru sehingga berdasarkan pengalaman dan Studi yang sedang saya jalani membuat saya tertarik di bidang multimedia dan ingin lebih mendalami pengalaman saya di bidang Web Developer.<br>
+Aku memiliki kepribadian yang bertanggung jawab dan mau belajar hal baru sehingga berdasarkan pengalaman dan Studi yang sedang aku jalani membuat aku tertarik di bidang multimedia dan ingin lebih mendalami pengalaman di bidang Web Developer.<br>
 
 Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/jihan-datuslan-ibrahim-6550a5255/) ku ya!!.  
 
